@@ -1,1 +1,1 @@
-Proyecto Lazlotex, S.A. de C.V.
+Proyecto Lazlotex, S.A. de C.V. Para seguimiento de pedidos
